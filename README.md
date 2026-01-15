@@ -1,1 +1,0 @@
-# STIMim_code
